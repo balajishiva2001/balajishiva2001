@@ -14,7 +14,7 @@
 
 <br>
 <blockquote>
-  <b>Open to work:</b> Currently serving notice period. Last working day <b>2 December 2026</b>.
+  <b>Open to work:</b> Actively seeking new opportunities.
 </blockquote>
 
 </div>
